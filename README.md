@@ -1,5 +1,5 @@
 ### 👋 Hi,  
-##### I’m Blake and I use these things:
+##### I’m Blake and I enjoy using these technolgoies:
 - React
 - Typescript
 - Next.js
