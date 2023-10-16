@@ -8,8 +8,8 @@
 - Python
 - Ubuntu
 
-[Pdf CV]([https://profile.indeed.com/p/blakep-ke3hi45](https://drive.google.com/file/d/1XuhAnWxb-Rg4Q3mBLxxKbghDf-1J13Xr/view))
-[Indeed CV](https://profile.indeed.com/p/blakep-ke3hi45)
-
+[view my Linkedin](https://www.linkedin.com/in/blake-m-preston/)  
+[view my CV](https://drive.google.com/file/d/1ZQ22k7DEG-iPaY0FqJUnwqBLBrBCpds2/view?usp=sharing)  
+  
 I also love a good card/boardgame  
 and cooking is delightful
