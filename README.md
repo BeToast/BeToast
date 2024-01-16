@@ -9,7 +9,7 @@
 - Ubuntu
 
 [view my Linkedin](https://www.linkedin.com/in/blake-m-preston/)  
-[view my CV](https://drive.google.com/file/d/1ZQ22k7DEG-iPaY0FqJUnwqBLBrBCpds2/view?usp=sharing)  
+[view my CV](https://drive.google.com/file/d/1m3LY8nRPMlAZaedFrOdP0OzQAehKqSrU/view?usp=drive_link)  
   
 I also love a good card/boardgame  
 and cooking is delightful
