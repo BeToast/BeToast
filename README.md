@@ -11,5 +11,5 @@
 [view my CV](https://drive.google.com/file/d/1m3LY8nRPMlAZaedFrOdP0OzQAehKqSrU/view?usp=drive_link)  
   
 I also love a good card/boardgame  
-and cooking is delightful
-Windows = 🤮, but it must be tolerated for importing fonts in Figma...
+and cooking is delightful  
+Windows = 🤮, but it must be tolerated for importing fonts in Figma...  
