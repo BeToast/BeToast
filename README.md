@@ -1,4 +1,4 @@
 ### Innovation is in simplification
-- less clicks
-- less code
-- less abstraction
+- minimal lines
+- minimal clicks
+- minimal abstraction
